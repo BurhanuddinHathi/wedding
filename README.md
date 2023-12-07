@@ -1,5 +1,3 @@
 # wedding
 
-Tu Naraz nathhi ne mara thi mari jaaan?
-
-Mari kasam ne jaanu
+I Love you so much mari jaaaannnn
